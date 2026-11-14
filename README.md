@@ -1,0 +1,1 @@
+# india-day-trader-skills
